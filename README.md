@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Tiffany Hsiang
+- 👋 Hi, I’m Tiffany from Taiwan :)
 - 👀 I’m interested in Cognitive Science and Psycology. 
 - 🌱 I’m currently looking for a position to contribute my skills in Marketing Analytics. 
 - 📫 hfh7985@gmail.com send me an email!
